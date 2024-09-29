@@ -3,9 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:
-  - instagram: @annatequila_lemon
-  - personal email: ann.yien.tsai@gmail.com
-  - school email: 2026.yien.tsai@uwcisak.jp
+  - instagram: @annatequila_a
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
